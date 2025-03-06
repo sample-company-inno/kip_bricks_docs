@@ -1,0 +1,1 @@
+[Link](https://drive.google.com/file/d/1j_gQFhQoEa56EXrwzmgrJUi4UycR_uWt/view?usp=drive_link) to the architecture
